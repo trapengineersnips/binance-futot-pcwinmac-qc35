@@ -1,4 +1,4 @@
-# 
+# Atualizado binance futures bot complementos para Mac OS | Código aberto binance futures bot complementos para PC Windows. Com troca de tokens e processamento em lote — otimizado para máximo desempenho em cada plataforma.
 
 
 
